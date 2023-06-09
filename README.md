@@ -6,7 +6,13 @@ Hello! My name is Yin Wah Yip, and I am currently a junior majoring in Computer 
 - 📫 How to reach me: 
 linkedin: 
 www.linkedin.com/in/Yin-Wah-Yip
-yyip@villanova.edu
+
+Email me at:
+yinwah.yip@gmail.com (Personal)
+or
+yyip@villanova.edu (School)
+
+
 
 - ⚡ Fun fact: I've played the violin for over 13 years!
 
