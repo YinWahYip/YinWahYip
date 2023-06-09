@@ -8,9 +8,9 @@ linkedin:
 www.linkedin.com/in/Yin-Wah-Yip
 
 Email me at:
-yinwah.yip@gmail.com (Personal)
+-yinwah.yip@gmail.com (Personal)
 or
-yyip@villanova.edu (School)
+-yyip@villanova.edu (School)
 
 
 
