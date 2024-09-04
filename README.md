@@ -7,8 +7,8 @@ Hello! My name is Yin Wah Yip, and I am currently a junior majoring in Computer 
 linkedin: 
 www.linkedin.com/in/Yin-Wah-Yip
 
-- 🎻 I've played the violin for over 13 years!
-- 📚 Avid Journaler For the past 2 years
+- 🎻 I've played the violin for over 15 years!
+- 📚 Avid Journaler For the past 3 years
 
 
 To reach me, email me at:
