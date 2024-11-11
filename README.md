@@ -9,6 +9,7 @@ www.linkedin.com/in/Yin-Wah-Yip
 
 - 🎻 I've played the violin for over 15 years!
 - 📚 Avid Journaler For the past 3 years
+- I'm about to learn how to crochet.
 
 
 To reach me, email me at:
