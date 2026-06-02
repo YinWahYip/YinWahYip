@@ -14,9 +14,7 @@ www.linkedin.com/in/Yin-Wah-Yip
 
 
 To reach me, email me at:
-- yinwah.yip@gmail.com 
-or
-- yyip@villanova.edu 
+- yinwah@duck.com
 
 
 
