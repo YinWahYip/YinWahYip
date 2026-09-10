@@ -7,14 +7,7 @@ I'm open to any opportunities! Feel free to reach out at yinwah@duck.com
 - 📫 How to reach me: 
 linkedin: 
 www.linkedin.com/in/Yin-Wah-Yip
-
-- 🎻 I've played the violin for over 15 years!
-- 📚 Avid Journaler For the past 3 years
-- I'm about to learn how to crochet.
-
-
-To reach me, email me at:
-- yinwah@duck.com
+yinwah@duck.com
 
 
 
